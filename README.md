@@ -1,0 +1,2 @@
+# SilenceHills
+My own crypto
